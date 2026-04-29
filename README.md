@@ -3,4 +3,4 @@ For schoolwork
 
 ### Username and corresponding student IDs
 
-Wigglytuffutylggiw（rookiedude）: 2023011314 wanghanyin
+Wigglytuffutylggiw（rookiedude）: 2023011314
